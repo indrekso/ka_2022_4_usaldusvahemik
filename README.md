@@ -1,0 +1,1 @@
+# ka_2022_4_usaldusvahemik
